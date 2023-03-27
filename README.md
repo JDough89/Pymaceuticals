@@ -1,1 +1,1 @@
-# Pymaceuticals
+# Pymaceuticals Inc
